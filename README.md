@@ -1,4 +1,4 @@
-# AudioBibles
+# Audio Bibles in MP3 Format
 Welcome. Audio Bibles in MP3 Format, Free, created using Neural Network text to speech.
 
 You can download from our website at:
