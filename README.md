@@ -9,3 +9,33 @@ Use at your own discretion, no need to ask for permission, no warranty’s.
 Author: Proud Slave of Christ
 
 Visit our site: https://beblia.com God Bless. Thank you.
+
+Afrikaans
+Akan
+Albanian
+Amharic
+Arabic
+Armenian
+Avar
+Awadhi
+Aymara
+Azerbaijan
+
+Baoule
+Bashkir
+Bengali
+Bhojpuri
+Bulgarian
+Burmese
+
+Catalan
+Cebuano
+Chechen
+Chin
+Chinese
+Chin
+Chuvash
+Croatian
+Czech
+
+Danish
