@@ -10,6 +10,7 @@ Author: Proud Slave of Christ
 
 Visit our site: https://beblia.com God Bless. Thank you.
 
+-------------------------
 Bible Audio List:
 Afrikaans
 Akan
@@ -28,7 +29,7 @@ Bengali
 Bhojpuri
 Bulgarian
 Burmese
-
+-------------------------
 Catalan
 Cebuano
 Chechen
@@ -38,11 +39,11 @@ Chin
 Chuvash
 Croatian
 Czech
-
+-------------------------
 Danish
 Dinka
 Dutch
-
+-------------------------
 English
 Esperanto
 Ewe
