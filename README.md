@@ -10,8 +10,12 @@ Author: Proud Slave of Christ
 
 Visit our site: https://beblia.com God Bless. Thank you.
 
-***************
+--------------------------
+--------------------------
+--------------------------
+--------------------------
 Bible Audio List:
+******************************
 Afrikaans
 Akan
 Albanian
@@ -174,3 +178,4 @@ Yoruba
 ******************************
 Zarma
 Zulu
+******************************
